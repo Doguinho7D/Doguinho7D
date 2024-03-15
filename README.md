@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Doguinho7D
+- 👀 I’m interested in pussy
+- 🌱 I’m currently learning How to earn money on the Internet
+- 📫 How to reach me on my discord: jaozin.x or on my Instagram: jaozinx.777
+- 😄 Pronouns: vulgo Doguinho dus 7D
+- ⚡ Fun fact: I know capoeira when I'm overweight
